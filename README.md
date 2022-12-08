@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @raiyan1956
+- 👀 I’m interested in programming,C
+- 🌱 I’m currently learning basic programming
+- 📫 Reach me on raiyankhan2111@gmail.com
